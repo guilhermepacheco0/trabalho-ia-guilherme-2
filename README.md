@@ -1,1 +1,0 @@
-# trabalho-ia-guilherme-2
